@@ -5,8 +5,6 @@
 📫 How to reach me: ayeayemyat.hmsa@gmail.com or via LinkedIn (https://www.linkedin.com/in/aye-aye-myat-7b9818121).
 😄 Pronouns: She/Her
 ⚡ Fun fact: I’m trilingual, speaking English, Korean, and Myanmar,and love blending my language skills with financial expertise to work across cultures and teams!
-✉️ Contact
-LinkedIn:www.linkedin.com/in/aye-aye-myat-7b9818121  | Email: ayeayemyat.hmsa@gmail.com
 
 <!---
 ayeayemyat-miso/ayeayemyat-miso is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
